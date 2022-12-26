@@ -37,4 +37,4 @@ This Privacy Policy is effective as of [[Date]] and will remain in effect except
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send [["me"]] an email to [[a.ibrahim5602@gmail.com]].
+For any questions or concerns regarding the privacy policy, please send [["me"]] an email to [[nadagamal13585@gmail.com]].
